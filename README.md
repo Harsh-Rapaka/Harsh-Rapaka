@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Harsh-Rapaka
+- 👀 I’m interested in - Learning new skills and building special projects
+- 🌱 I’m currently learning - DSA with Java and Full stack web developement
+- 💞️ I’m looking to collaborate on - Various projects and also build myself
+- 📫 How to reach me - you can reach me at LinkedIn www.linkedin.com/in/harsh-rapaka-b5b2a12aa
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Can be a good speaker and at the same time listens and learns through my mistakes
